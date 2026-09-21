@@ -1,0 +1,2 @@
+# lgljgl
+Daily digest notes
